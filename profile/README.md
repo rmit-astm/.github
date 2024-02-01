@@ -1,4 +1,4 @@
-# Active Transport Modelling Group at RMIT University
+# Active and Sustainable Transport Modelling Group at RMIT University
 
 ## About Us
 
